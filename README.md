@@ -13,4 +13,8 @@
 
 📫 Let's connect and build something awesome together! Feel free to reach out to me via (mail:vaisri003@gmail.com)(linkedin:https://www.linkedin.com/in/vaisri-s-156203272/)
 
+🚀 Check out my repositories for projects and contributions in Programming.
+
+Looking forward for the intern and job opportunities. Let's collaborate and build something amazing together! 💪
+
 Happy coding! 🚀
